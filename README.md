@@ -8,3 +8,9 @@ https://www.youtube.com/watch?v=3J7QgUq0xoM
 #HOMEWORK3
 ![image](https://github.com/user-attachments/assets/28e5de74-e4dc-4a91-b0e1-74912373ddd0)
 
+
+#HOMEWORK4
+
+
+https://github.com/user-attachments/assets/2090bbaa-fb24-47ce-b219-370d0642a0df
+
