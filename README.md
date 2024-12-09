@@ -14,3 +14,5 @@ https://www.youtube.com/watch?v=3J7QgUq0xoM
 
 https://github.com/user-attachments/assets/2090bbaa-fb24-47ce-b219-370d0642a0df
 
+#HOMEWORK5
+![image](https://github.com/user-attachments/assets/be176628-457b-4c7d-b6a3-020900acb8f1)
